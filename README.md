@@ -1,5 +1,3 @@
-I'm Japanese
-
 WROに挑戦するteam HMK new3のコーチです。
 よろしくお願いします。
 
